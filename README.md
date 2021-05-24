@@ -1,0 +1,2 @@
+# tn
+Gunakan dgn bijak
